@@ -11,6 +11,6 @@ There are a few credits i have to give so bear with me while i update those.
 2. credits for the Andrid Audio Bypass using soundpool.
 
 PLEASE DOWNLOAD THE APK NAMED "ULTIMATE_XYLO_1.0.apk" This app is developed for android only.
-
+SEE VIDEO HERE:https://drive.google.com/drive/folders/14weK1Sg7sg0VnMc0EwcRNhViEvUXQq2x?usp=sharing
 screenshots are here.
 https://crosscakeinteractive.com/whats-new/
